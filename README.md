@@ -1,1 +1,1 @@
-# django_practiceㅇㅇ
+Tistory좀 봐주세요~!!!!
